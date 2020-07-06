@@ -1,0 +1,1 @@
+https://edytaw.github.io/GoldenShop2/
